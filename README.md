@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ZacCentracchio
+- 👋 Hi, I’m Zac Centracchio
 - I am in my 4th year at Drexel University. I am majoring in Game Design and Production, focusing on technical art and design.
 - I’m looking to collaborate on challenging projects that will help me develop my skills as a game designer.
 - My email is Zachary.Centracchio@gmail.com if you would like to chat.
